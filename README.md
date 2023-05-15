@@ -12,4 +12,4 @@ souza.matheus02@escola.pr.gov.br
 
 
 
-![]()https://tenor.com/pt-BR/view/fafuke-sasuke-naruto-uchiha-gif-19514847
+![](https://tenor.com/pt-BR/view/fafuke-sasuke-naruto-uchiha-gif-19514847)
